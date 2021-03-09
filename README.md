@@ -1,0 +1,2 @@
+# SocoalaDaiCa.github.io
+ádasd
