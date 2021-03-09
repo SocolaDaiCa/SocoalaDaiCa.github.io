@@ -1,5 +1,3 @@
-# SocoalaDaiCa.github.io
-
 ádasd 1
 
 
